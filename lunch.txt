@@ -1,1 +1,1 @@
-Our favorite lunch is: pizza
+Our favorite lunch is: sushi
